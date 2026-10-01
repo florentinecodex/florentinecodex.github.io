@@ -13,7 +13,7 @@
   <br>
     <br>
     <br>
-    <strong>Recommended Readings Sept. 30:</strong>
+    <strong>Recommended Readings Oct. 5:</strong>
     <br>
     <ul>
     <li>Bassett, Molly H. 2019. "Bundling Natural History: Tlaquimilolli, Folk Biology, and Book 11"<br>
